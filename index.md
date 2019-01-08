@@ -1,4 +1,4 @@
-##Video Clip Privacy Policy
+## Video Clip Privacy Policy
 
 Yunyun Tang built the Video Clip Editor app as a Free app. This SERVICE is provided by Yunyun Tang at no cost and is intended for use as is.
 
